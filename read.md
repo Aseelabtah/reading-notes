@@ -27,5 +27,3 @@
 ##### I love learning new things, developing my skills and trying everything out This helps me improve my work and do what is best for it to be unique
 
 [growth mindset](https://www.atlassian.com/blog/inside-atlassian/growth-mindset)
-
-
